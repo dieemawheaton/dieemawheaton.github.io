@@ -1,3 +1,2 @@
-# Vote Wheaton 2020
+# Elect Wheaton 
 
-Coming soon
